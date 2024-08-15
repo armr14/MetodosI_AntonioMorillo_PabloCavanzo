@@ -1,2 +1,15 @@
-#Cambio de pc
-x = 2
+b
+clas
+ñdkas
+dlas
+{dkas
+kd
+asdk{ñkd
+asdlk
+as{dkas
+dka
+kda
+ñdk
+añskda
+s{kdñ
+d}}
